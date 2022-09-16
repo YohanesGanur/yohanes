@@ -1,0 +1,2 @@
+# yohanes
+Pasukan titik koma
